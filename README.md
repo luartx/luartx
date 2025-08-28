@@ -7,7 +7,7 @@
 - 🤖 L2 IT Specialist and Certified RHCSA at red hat
 - 🌱 I’m currently learning automation on ansible
 - 💞️ I’m looking to collaborate on automation 
-- 📫 How to reach me luart12@hotmail.com
+- 📫 How to reach me 54anlzy1i@mozmail.com
 
 
 Creedy profile https://www.credly.com/users/luis-arturo-garcia.e89b80d3
